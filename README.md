@@ -3,4 +3,4 @@
 WHY?
 Because we wanna know your phone number (and maybe GeoLocation)
 BUT WHY?
-Because hackers needs it.
+Because "advertising and marketing companies" and "hackers" needs it.
